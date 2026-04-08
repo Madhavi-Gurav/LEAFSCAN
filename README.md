@@ -124,3 +124,9 @@ Madhavi Sanjay Gurav
 🎓 Diploma in AI & ML
 🏫 I²IT Pune
 💡 Interested in AI for real-world impact
+
+<img width="800" height="700" alt="Screenshot 2026-01-17 185035" src="https://github.com/user-attachments/assets/81888ba4-a44e-4773-86b0-0fc46a5bcf88" />
+<img width="800" height="700" alt="Screenshot 2026-01-15 162727" src="https://github.com/user-attachments/assets/a1ac9f40-6972-4dc1-9589-a9f35ddd45e7" />
+<img width="800" height="700" alt="Screenshot 2026-01-17 190601" src="https://github.com/user-attachments/assets/134a3a0b-1091-4f6c-8725-98b2925dd933" />
+
+
